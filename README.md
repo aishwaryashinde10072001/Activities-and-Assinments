@@ -1,1 +1,1 @@
-# Activities-and-Assinments
+# Activities-and-Assignment
